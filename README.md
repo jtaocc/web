@@ -2,7 +2,7 @@
 ==
 :star: :point_right: 【永久网址】 ：http://www.jtao.cc
 ------
-:star: :point_right: 【地址一】 ：http://www.jtao.in
+:star: :point_right: 【地址一】 ：http://www.jtao.pw
 ------
 :star: :point_right: 【邮箱联系方式】 ：jtao667788@gmail.com
 ------
